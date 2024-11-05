@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @deadghost9393
 - 👀 I’m interested in hacking and coding
 - 🌱 I’m currently learning advance web
-- 📫 How to reach me ghodtgirl9393@gmail.com
+- 📫 How to reach me ghostgirl9393@gmail.com
 - 😄 Pronouns: hey
 - ⚡ Fun fact: sun always shines.
 
